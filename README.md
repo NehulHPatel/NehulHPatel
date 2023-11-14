@@ -1,5 +1,3 @@
-# 🚀 Nehul Patel
-
 Hey there! I'm Nehul Patel, and I love transforming ideas into code! Welcome to my coding space where innovation meets lines of code.
 
 ## 💡 About Me
