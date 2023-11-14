@@ -8,7 +8,7 @@ Hey there! I'm Nehul Patel, and I love transforming ideas into code! Welcome to 
 
 ## Coder's Odyssey
 
-Every bug fixed is a step in the journey of embracing the coder's metamorphosis—from questioning every line to confidently declaring, "I can code anything." ✨
+Every bug fixed is a step in the journey of embracing the coder's metamorphosis—from questioning every line to superiority complex, we all can relate.✨
 
 ## 📫 Let's Connect
 
